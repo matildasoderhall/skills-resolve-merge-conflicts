@@ -1,3 +1,7 @@
-# References
+## My references
 
-* octocat 1 😈
+- School
+
+- Work
+
+- Famiy
